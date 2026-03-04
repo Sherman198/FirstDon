@@ -1,2 +1,2 @@
 # FirstDon
-Whacko Society 
+The man in the mask
